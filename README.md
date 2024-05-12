@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **ummekulsoomshaikh04@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1FP-Nt-XvaLDm0OOX8UXrUaTbeL0PqG9s/view?usp=drivesdk](https://drive.google.com/file/d/1FP-Nt-XvaLDm0OOX8UXrUaTbeL0PqG9s/view?usp=drivesdk)
 
 - ⚡ Fun fact **I am funny**
 
