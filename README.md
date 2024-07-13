@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=umme-kulsoom&label=Profile%20views&color=0e75b6&style=flat" alt="umme-kulsoom" /> </p>
 
-- 🌱 I’m currently learning **Web development**
+- 🌱 Currently I’m learning **Web development**
 
 - 📫 How to reach me **ummekulsoomshaikh04@gmail.com**
 
